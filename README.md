@@ -1,0 +1,1 @@
+Student Information means materials, information, records and knowledge that an LEA possesses or maintains, or both, about individual students. Student information is broader than student records and may include information or knowledge that school employees possess or learn in the course of their duties.
